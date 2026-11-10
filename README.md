@@ -1,4 +1,4 @@
 # cogdemo-repo
 cognizant
 <br>
-iam delected for cognizant
+iam delected for cognizant (m)gi
